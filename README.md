@@ -11,3 +11,5 @@
 <p align="center">  ɪɴ🇸ᴛᴀɢʀᴀᴍ - @𝘶𝘯𝘥𝘳𝘴𝘬𝘪𝘯𝘴 <br> 🇸ᴘᴏᴛɪꜰʏ - 𝘺𝘶𝘳𝘢𝘵 <br>  ᴅɪ🇸ᴄᴏʀᴅ - @𝘺𝘶𝘳𝘢𝘵 <br> ᴛɪᴋᴛᴏᴋ - @𝘭𝘯𝘴𝘰𝘳𝘥𝘦𝘴𝘤𝘦𝘯𝘵 <br>
 <br>
 
+
+![](https://komarev.com/ghpvc/?username=insordescent&color=657854)
